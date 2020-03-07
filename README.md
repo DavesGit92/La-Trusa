@@ -1,2 +1,2 @@
 # La-Trusa
-Por si le ponen la cancion Lol
+Pero si le ponen la cancion le da una depresion... tonta
